@@ -3,10 +3,10 @@
 
 ## :link: <b>You can find me at:</b>
 - ⚡ Blog : https://www.o-om.com
-- ⚡ Facebook : https://fb.me/buananet.pbun
-- ⚡ Twitter : https://twitter.com/oomdotcom
-- ⚡ Instagram : https://instagram.com/buananet_mikrotik
-- ⚡ linkedin : https://linkedin.com/in/agus-ramadhani
+- ⚡ Facebook : https://fb.com/M.Alabadie
+- ⚡ Twitter : https://twitter.com/Alabadi_IQ@
+- ⚡ Instagram : https://instagram.com/nlx.6
+- ⚡ 
 
 ## :gift_heart: <b>Want to give me a Gift ?</b><br>
 - :link: PAYPAL to https://paypal.me/agusramadhani1<br>
